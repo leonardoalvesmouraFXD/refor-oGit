@@ -1,0 +1,1 @@
+Vamos reforçar os ensinamentos que acabamos de adquirir 
